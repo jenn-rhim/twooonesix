@@ -1,3 +1,3 @@
 # twooonesix
 practice
-I love :pizza:, :flower:, and :dancing:
+I love :pizza:, :coffee:, and :dancer:
